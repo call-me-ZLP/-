@@ -8,3 +8,6 @@
 𝚐𝚊𝚝𝚒𝚝𝚊 𝚍𝚘𝚗'𝚝 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚂𝚒𝚖𝚘𝚗 𝚒'𝚖 𝚉𝙻𝙿 𝚘𝚔
 
 ME WHEN THE SIX AND SEVEN MEET EVEN AND SIX GETS PTSD CUS EVEN USED TO BE HER BF BUT HE WAS ABUSIVE SO SEVEN LOWKEY BRAWLS TEH STARS OUTTA EVEN😡😡😡
+
+_𝚆𝚑𝚢 𝚊𝚛𝚎𝚗'𝚝 𝚢𝚘𝚞 𝚘𝚗𝚕𝚒𝚗𝚎?_
+![IMG_20260831_025753.jpg](https://github.zendesk.com/attachments/token/S3MHQVr7qwgdNlXlIwgTTexHf/?name=IMG_20260831_025753.jpg)
