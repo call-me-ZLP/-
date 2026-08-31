@@ -9,4 +9,4 @@
 ME WHEN THE SIX AND SEVEN MEET EVEN AND SIX GETS PTSD CUS EVEN USED TO BE HER BF BUT HE WAS ABUSIVE SO SEVEN LOWKEY BRAWLS TEH STARS OUTTA EVEN😡😡😡
 
 _𝚆𝚑𝚢 𝚊𝚛𝚎𝚗'𝚝 𝚢𝚘𝚞 𝚘𝚗𝚕𝚒𝚗𝚎?_
-![IMG_20260831_025753.jpg](https://github.zendesk.com/attachments/token/S3MHQVr7qwgdNlXlIwgTTexHf/?name=IMG_20260831_025753.jpg)
+<img width="413" height="77" alt="IMG_20260831_025753" src="https://github.com/user-attachments/assets/7b7ca1f8-ac47-4c71-bf3d-ce3422bc359c" />
