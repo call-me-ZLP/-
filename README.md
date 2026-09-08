@@ -10,8 +10,9 @@
 
 ~I'm from Malaysia. I'm good with my friends
 
-~Don't be so mean and don't treat me badly. I already apologized. I'm not angry ok
+~Don't be so mean and don't treat me badly. I already apologized. I'm It's not that I don't want to serve ok⊂⁠(⁠・⁠﹏⁠・⁠⊂⁠)
 
 ~my favourite mannequin mark and facty boy👀
-
-<img width="736" height="414" alt="Untitled354_20260907005325" src="https://github.com/user-attachments/assets/50bd4d12-e919-4338-a10a-6d3a85347844" />
+￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣
+<img width="720" height="957" alt="IMG_20260908_211123" src="https://github.com/user-attachments/assets/6e390fa4-6929-47f1-8228-cb5d73b25ee0" />
+thanks you nina😔
