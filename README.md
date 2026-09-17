@@ -1,6 +1,4 @@
-<img width="735" height="68" alt="Untitled355_20260907005358" src="https://github.com/user-attachments/assets/4bcc9d6f-bc09-4575-80ef-a0a723897806" />
-<img width="711" height="686" alt="Untitled356_20260907012315" src="https://github.com/user-attachments/assets/0cafaa05-4a1d-4ad8-855d-8eb2310b46d2" />
-<img width="735" height="68" alt="Untitled355_20260907005515" src="https://github.com/user-attachments/assets/6132c05a-fa13-44bd-8c5d-e986df334491" />
+![Untitled372_20260917014532.png](https://github.zendesk.com/attachments/token/BvAHcbF6gLGwzDU0fQZ2Edy6k/?name=Untitled372_20260917014532.png)
 
 ~Hello i'm ZLP
 
