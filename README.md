@@ -10,7 +10,7 @@
 
 ★Don't be so mean and don't treat me badly. I already apologized. I'm It's not that I don't want to serve ok⊂⁠(⁠・⁠﹏⁠・⁠⊂⁠)
 
-★my favourite mannequin mark and facty boy👀
+★pony's town mannequin_mark and facty boy
 ￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣￣⁠︶⁠￣⁠￣⁠︶⁠￣
 <img width="720" height="957" alt="IMG_20260908_211123" src="https://github.com/user-attachments/assets/6e390fa4-6929-47f1-8228-cb5d73b25ee0" />
 
